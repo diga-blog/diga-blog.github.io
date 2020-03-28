@@ -9,3 +9,5 @@ Vielleicht kommen auch ein paar andere Themen dazu.
 Ich empfehle, zu Beginn den Post 'Das Corona-Virus und exponentielles Wachstum' vom 25.03.2020 lesen, auch wenn er etwas länger ist. Den Text hatte ich zuerst geschrieben und dann erst kam der Entschluss, mit ihm dieses Blog zu starten.
 
 Jeder sieht, diese Seite ist noch eine Baustelle. Aber ich werde mich anstrengen, noch vor dem BER fertig zu sein.
+
+Mail: mail2diga@gmail.com
